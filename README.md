@@ -1,0 +1,1 @@
+> **Disclaimer:** These fonts are not owned by me. They were obtained from [GameBanana](https://gamebanana.com/tools/7763) and have only been edited and organized to make the fonts easier to find.
